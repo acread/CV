@@ -9,6 +9,9 @@ Things to add: \
 Ellison manuscript is published
 Munasinghe manuscript is published \
 Invited talk at Metro State \
-Guest Lectures for Candy's class and NDSU class
+Guest Lectures for Candy's class and NDSU class 
+
+US Wheat and Barley Scab Initiative Barley Coordinated Project Committee \
+IS-MPMI Assistant Editor
 
      
